@@ -6,7 +6,7 @@ for almost a month with my great sincerity,
 
 as you always refuse any physical entity from me ;-D.
 
-I hope this will not look to PROGRAMMERISH, LOL, and delight you.
+I hope this will not look too PROGRAMMERISH, LOL, and delight you.
 
 Anyhow happy birthday and best wishes to you.
 
